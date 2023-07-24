@@ -1,3 +1,3 @@
 # smmpanels
 
-goupsocial.com
+[goupsocial.com]
