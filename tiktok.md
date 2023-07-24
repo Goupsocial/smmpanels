@@ -23,6 +23,5 @@ Our TikTok organic follower, like, and comment services are now active. Our serv
 
 Telegram - https://t.me/goupsocial
 
-WhatsApp - https://api.whatsapp.com/send?phone=447473455736
 
 [Smm Panel] (https://goupsocial.com/)
